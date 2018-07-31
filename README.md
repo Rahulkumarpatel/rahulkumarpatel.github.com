@@ -1,2 +1,0 @@
-# RahulkumarPatelPages.io
-Pages
